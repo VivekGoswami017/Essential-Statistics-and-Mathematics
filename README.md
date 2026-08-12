@@ -1,1 +1,0 @@
-# Essential-Statistics-and-Mathematics
